@@ -1,3 +1,3 @@
 # SystemLOgic
 <br>
-Author :- vrushabh Awathankr
+Author :- vrushabh Awathankr (Jain)
